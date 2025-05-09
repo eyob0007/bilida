@@ -1,0 +1,2 @@
+# bilida
+English - Oromo Dictionary
